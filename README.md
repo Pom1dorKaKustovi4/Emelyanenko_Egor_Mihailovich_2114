@@ -1,0 +1,1 @@
+# olimp_30var
